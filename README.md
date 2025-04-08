@@ -1,2 +1,2 @@
-# BananOS
-NOT MADE BY ME
+# Welcome
+I fixed some bugs for the mods, enjoy
