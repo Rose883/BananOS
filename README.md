@@ -1,2 +1,3 @@
-# Welcome
-I fixed some bugs for the mods, enjoy
+# ROSE883GT MOD MENU IS OUT NOW
+### Get my mod menu Right now
+# ONLY WORKS FOR GORILLA TAG (STEAM OR META LINK ONLY)
